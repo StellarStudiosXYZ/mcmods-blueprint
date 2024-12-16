@@ -1,0 +1,5 @@
+[![](https://www.sourcexchange.net/storage/yL7VWw3xzjaWQkgC0R4DpG3YHAJNN2yRxzbfFb2p.png)](https://blueprint.zip)
+![](https://www.sourcexchange.net/storage/UaKgvvHWgLj3TViRyYEXb4pNHv4j1XnzqZUGjWcA.png)
+![](https://www.sourcexchange.net/storage/8OrbD9yaDcEaU21vOHIxnpIqwX4FqDs9RDR4nhzV.png)
+![](https://www.sourcexchange.net/storage/IjI2XGZDsR0AABqBqfn6Di45hAMXOSJtPpJW8pdo.png)
+[![](https://www.sourcexchange.net/storage/VESHUWhfHqxwsiGZMqj2KnGSzSWfBd235lM6s9nE.png)](https://discord.gg/sQjuWcDxBY)
